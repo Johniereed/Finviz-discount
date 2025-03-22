@@ -51,6 +51,13 @@ Claim a [20% discount](https://finviz.com/) on Finviz's advanced stock screening
 
 [![|624x97](https://lh7-rt.googleusercontent.com/docsz/AD_4nXfOCoPEyF37Nke9sGN-5UFO7Z7Z0REtgQA3npfTa1SvOWx5QPQfz2jWTFv5eQ_RP0PDogNTVbd-57mOMjF5p9oL23N7UZBgvY1hlYSICWXNFrKj1ps8wiolqacQfGgnr2D0faNUnw?key=O7N3j3b6y_XD6j2gLs-049yk)](https://finviz.com/)
 
+With this Finviz discount offer, you will also get access to:
+
+* 👉 Custom Filters: Apply technical, fundamental, and descriptive filters to find stocks that match your specific criteria.
+* 👉 Data Export: Download screened stock data for further analysis in Excel or other tools.
+* 👉 Statistical Analysis: Access in-depth market metrics, ratios, and performance indicators.
+* 👉 Backtesting: Test trading strategies using historical data to evaluate profitability.
+
 ## Finviz Discount Code | Get 25% Off [Site-Wide]
 
 Get [25% off](https://finviz.com/) on everything with this Finviz Discount and grab your desired plan with maximum savings.
