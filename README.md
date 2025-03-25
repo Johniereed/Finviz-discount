@@ -70,7 +70,7 @@ Click the button below to grab this Finviz discount deal now!
 
 You could get **[40% off](https://finviz.com/?affilId=643955469)** during the Finviz Black Friday sale on the entire website. However, the discount has now expired.
 
-[![|624x97](https://lh7-rt.googleusercontent.com/docsz/AD_4nXc1Rrm2JbNlsLDoEk9XADbXWo99YoS-d4BhhDUzg-lOb9NKWzJaeWXWjb9FByAGL1OjAOQ5NsnHtk55VyGkKH5BzLGzUyDaLPZvXop314ke0vBWNAdMV5PND0BsPKstLv6eE-MZaA?key=O7N3j3b6y_XD6j2gLs-049yk)](https://github.com/Johniereed/Finviz-discount)
+[![|624x97](https://lh7-rt.googleusercontent.com/docsz/AD_4nXc1Rrm2JbNlsLDoEk9XADbXWo99YoS-d4BhhDUzg-lOb9NKWzJaeWXWjb9FByAGL1OjAOQ5NsnHtk55VyGkKH5BzLGzUyDaLPZvXop314ke0vBWNAdMV5PND0BsPKstLv6eE-MZaA?key=O7N3j3b6y_XD6j2gLs-049yk)](https://finviz.com/?affilId=643955469t)
 
 But don’t worry you can still save massive on your Finviz subscription with the active deals in this article.
 
